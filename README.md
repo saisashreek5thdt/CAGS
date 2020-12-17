@@ -1,0 +1,2 @@
+# CAGS
+Established in 2012, Anisha Education Society aims to impact the educational landscape of India by offering enhanced next-generation learning and teaching experiences. Inspired and influenced with the Future School Initiatives in Singapore, the Trust made its initial venture into education with the launch of India's first Future School at Hinjewadi (Life Republic Township) in the year 2014, rapidly followed by a second Future school at Undri (NIBM Road) in 2016.
